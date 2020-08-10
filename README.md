@@ -1,1 +1,1 @@
-# Internship-Assignment-Sparks-Foundation
+# Business Intelligence and Analytics-Internship-Assignment-Sparks-Foundation
